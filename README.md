@@ -115,8 +115,8 @@ Unlock the full potential of blockchain technology with **USDT Flash Software**.
  
 - **24/7 Support**: We're here to assist you around the clock.  
 - **Official Telegram Channel**: Stay updated and see the software in action:  
-  - [Telegram](https://t.me/mrbigflashh)  
-  - [Announcements Channel](https://t.me/mrbigflash1)  
+  - [Telegram](https://t.me/mrbigflashh1)  
+  
  
 ---
  
